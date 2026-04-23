@@ -1,0 +1,1 @@
+Hi guys so I'm officially starting my journey towards Machine Learning aGAIN because I forgot EVERYTHING now that I've graduated and have all the time in the world. It's definitely a slow start but it's something. All the ML concepts I learnt during 7th sem are SLOWLY coming back to me so yippee for that. 
